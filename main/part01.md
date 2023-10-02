@@ -188,7 +188,7 @@ Aize stared out of the window. More than the Key, it was the Seal that he wanted
 
 ___
 
-They were on their way back home. Mika did not want to use the station, so they were walking. While it was no issue to either of them thanks to mana enhancement, she was silent all the way and Aize found it worrisome. She kicked a pebble as they passed through a park and let out a depressed sigh.
+They were on their way back home. Mika was silent all the way and Aize found it worrisome. She kicked a pebble as they passed through a park and let out a depressed sigh.
 
 “What’s wrong? You haven’t been talking much since Ms. Rikka’s class.”
 
